@@ -1,6 +1,6 @@
 ## Christopher O'Donnell
 
-**I am a Senior Psychology student attending USF!** I hope to continue my eduction through my Master's and Doctoral Degree studying Clinical Psychology! I specialize in Clinical Psychology though I have done extensive work with Positive Psychology.
+**I am a Senior Psychology student attending USF!** I hope to continue my eduction through my Master's and Doctoral Degree studying Clinical Psychology! I specialize in Clinical Psychology, though I have done extensive work within Positive Psychology.
 
 I have worked with [Valerie's House](https://valerieshouse.org) providing grief counseling for children. Along with this, I have experience with Positive Psychology counseling through USF with elemntery school children.
 
