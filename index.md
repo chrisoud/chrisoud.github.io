@@ -1,4 +1,4 @@
-## <div style="text-align: right"> Christopher O'Donnell </div>
+## Christopher O'Donnell
 
 **I am a Senior Psychology student attending USF!** I hope to continue my eduction through my Master's and Doctoral Degree studying Clinical Psychology! I specialize in Clinical Psychology, though I have done extensive work within Positive Psychology.
 
