@@ -15,6 +15,6 @@ Along with this, I have experience with Positive Psychology counseling through U
 
 
 ## Contact
-**Feel free to contact me through E-Mail!**
+**Feel invited to contact me!**
 
 codonnell@usf.edu
