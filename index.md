@@ -2,7 +2,9 @@
 
 **I am a Senior psychology student attending USF!** I hope to continue my eduction through my Master's and Doctoral Degree studying Clinical Psychology! I specialize in Clinical Psychology, though I have done extensive work within Positive Psychology.
 
-I have worked with [Valerie's House](https://valerieshouse.org) providing grief counseling for children. Along with this, I have experience with Positive Psychology counseling through USF with elemntery school children!
+I have worked with [Valerie's House](https://valerieshouse.org) providing grief counseling for children. This was one of the most impactful experiences of my life as I was able to give back to children who were in my position at a young age! 
+
+Along with this, I have experience with Positive Psychology counseling through USF with elemntery school children!
 
 ![Valerie's House Logo](https://cdn.discordapp.com/attachments/853040249839550475/971965250553401374/Valerieshouse.png)
 
