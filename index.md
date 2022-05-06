@@ -4,7 +4,7 @@
 
 I have worked with [Valerie's House](https://valerieshouse.org) providing grief counseling for children. This was one of the most impactful experiences of my life as I was able to give back to children who were in my position at a young age! 
 
-Along with this, I have experience with Positive Psychology counseling through USF with elementary school children!
+Along with this, I have experience providing Positive Psychology counseling through USF with elementary school children!
 
 ![Valerie's House Logo](https://cdn.discordapp.com/attachments/853040249839550475/971965250553401374/Valerieshouse.png)
 
