@@ -9,7 +9,7 @@ Along with this, I have experience providing Positive Psychology counseling thro
 ![Valerie's House Logo](https://cdn.discordapp.com/attachments/853040249839550475/971965250553401374/Valerieshouse.png)
 
 ### Education
-**University of South Florida (Tampa, FL) BA : August 2020 - May 2022**
+**University of South Florida (Tampa, FL) BA : August 2020 - July 2022**
  
 **Florida SouthWestern (Naples, FL) AA : August 2018 - May 2020**
 
