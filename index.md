@@ -13,6 +13,6 @@ I have worked with [Valerie's House](https://valerieshouse.org) providing grief 
 
 
 ## Contact
-Feel free to contact me through E-Mail!
+**Feel free to contact me through E-Mail!**
 
 codonnell@usf.edu
